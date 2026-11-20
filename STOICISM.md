@@ -1,0 +1,1 @@
+I don't agree with Stoicism, because of my belief in hard determinism. The hard determinism rules out any control over your thoughts or what you do. However, I do believe that Stoic exercises are excellent for developing a great lifestyle.
